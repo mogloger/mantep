@@ -1,0 +1,1 @@
+http://www.safelink.ga/p/generate.html 
